@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+This is where I intend to put, at least, my year's new music listening.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+It may be the ravings of an idiot, I'm not sure.
