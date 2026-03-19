@@ -1,4 +1,4 @@
-# Cryptic Shift - Overspace & Supertime
+# Cryptic Shift - Overspace and Supertime
 
 Holy hell this is dense with musical ideas.  It's frenetic, almost a combination of Death, Cynic, and Atheist, heavy... and really fun to listen to.
 
